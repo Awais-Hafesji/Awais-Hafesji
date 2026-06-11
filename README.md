@@ -25,7 +25,7 @@ I have added my history below for those that want to know more about me 👇
 #### Analytical Support Officer, NHS England, Leeds
 * July 2022 - September 2023
     * Worked within the Pharmacy, Optometry and Dental Analysis team, delivering routine and ad-hoc analysis for various teams and public bodies.
-    * Published the GP Patient Survey Results in 2023
+    * Published the GP Patient Survey Dental Results in 2023
 
 ### Education 🎓
 
