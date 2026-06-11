@@ -1,4 +1,4 @@
-<h1 align="center">Awais Hafesji</h1>
+# Awais Hafesji
 
 ## Welcome! 🙋🏽‍♂️
 
