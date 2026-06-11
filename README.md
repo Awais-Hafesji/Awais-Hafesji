@@ -1,6 +1,4 @@
-# Awais Hafesji
-
-## Welcome! 🙋🏽‍♂️
+# Welcome! 🙋🏽‍♂️
 
 Hi and welcome to my GitHub page! 
 
